@@ -1,3 +1,0 @@
-# Triptech
-
- 🕵🏻‍♂️ Stealth
